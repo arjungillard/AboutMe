@@ -18,7 +18,7 @@ Let me help you scale by finding your team exceptional talent.
 
 <p>📱Mobile: +44 (0) 7791 141 227</p>
 <p>🚀LinkedIn: https://www.linkedin.com/in/arjgillard/</p>
-<p>📧Email: agillard@agtalent.co.uk</p>
+<p>📧Email: mailto:agillard@agtalent.co.uk</p>
 <p>📆Book a call: https://calendly.com/arjgillard/</p>
 <p>🔗Website: https://www.agtalent.co.uk/</p>
 
