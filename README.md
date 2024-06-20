@@ -16,10 +16,10 @@ I’ve scaled global tech teams across the UK, EU and US, including easyJet, Tru
 
 Let me help you scale by finding your team exceptional talent.
 
-📱Mobile: +44 (0) 7791 141 227
-📧Email: agillard@agtalent.co.uk
-📆Book a call: https://calendly.com/arjgillard
-🔗Website: https://www.agtalent.co.uk
+📱Mobile: +44 (0) 7791 141 227/p>
+<p>📧Email: agillard@agtalent.co.uk/p>
+<p></p>📆Book a call: https://calendly.com/arjgillard/p>
+<p>🔗Website: https://www.agtalent.co.uk/p>
 
 I am also a community manager for the TTC (The Talent Community)
 
